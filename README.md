@@ -1,0 +1,2 @@
+- 👋 Oi, eu sou @yuripiacentini
+- 📫 yuri.piacentini@escola.pr.gov.br
